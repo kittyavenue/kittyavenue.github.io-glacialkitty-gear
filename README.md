@@ -1,2 +1,2 @@
-# kittyavenue.github.io-glacialkiity-gear
+# kittyavenue.github.io-glacialkitty-gear
 glacialkitty gear 
